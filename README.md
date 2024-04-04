@@ -1,3 +1,0 @@
-# FEUP-AI
-# FEUP-AI
-# FEUP-AI
